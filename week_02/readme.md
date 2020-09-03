@@ -5,3 +5,6 @@ Above is [*MuirMcneil's Interlock*](https://muirmcneil.com/project/interlock-typ
 ## Assignment 2: Re-Readings
 ![](clubpenguin.jpeg)
 This week we also started to organise ourselves for Assignment 2, splitting into groups and choosing which passage of [*House of Leaves*](https://en.wikipedia.org/wiki/House_of_Leaves) we will be interpreting in the virtual world. For my group (Hamish, Celia, Ruby and Myself) we chose Club Penguin, partly for nostolgic reasons and party to see how the horror genre can translate to such a kid friendly environment.
+
+*Silk-screened poster (2010) for the Interact type system using the colours PMS 926 and 809, in of an edition of 100 printed on 160gsm Naturalis Absolute Smooth. Dimensions: 100×70cm.
+Top: MuirMcNeil’s identity design for TypeCon, the annual convention of the Society of Typographic Aficionados (Sota) held in Seattle in the United States, 24-28 August 2016.
